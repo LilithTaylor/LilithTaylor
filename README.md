@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LilithTaylor
 - 👀 I’m interested in ... singing and video games.
-- 🌱 I’m currently learning ... Korean
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ... Chinese
+- 💞️ I’m looking to collaborate on ... My GirlFriend
 - 📫 How to reach me ...
 
 <!---
